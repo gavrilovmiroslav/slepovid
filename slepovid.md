@@ -166,7 +166,7 @@ Ako znaš kako da gledaš, naravno -- ako zaboraviš izgled i gledaš pokret, ig
 
 "Gde--" Džejms graknu, zakašlja se, pokaza jednom mršavom rukom ka Sarastijevom praznom, zjapećem kovčegu na kraju reda.
 
-Spindlove usne slomile su se u mali kez. "Otišao u fab, a? Gleda da mu brod napravi malo zemlje da se zakopa."
+Spindlove usne razvile su se u mali kez. "Vratio se u Fab, a? Gleda da mu brod napravi malo zemlje da se zakopa."
 
 "Verovatno priča sa Kapetanom." Bejtseva je disala glasnije nego što je govorila, suvo šuštanje iz cevi koje se još uvek navikavaju na ideju respiracije.
 
