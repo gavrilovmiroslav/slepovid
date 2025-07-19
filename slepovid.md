@@ -150,7 +150,7 @@ Spindl namešta vilicu. Kost glasno puca.
 
 "Prevareniii", sikće on.
 
-Nisi ni sreo vanzemaljce još uvek, a oni već trče krugove oko tebe.
+Nisi ni sreo vanzemaljce još uvek, a oni se poigravaju s tobom.
 
 ---
 
