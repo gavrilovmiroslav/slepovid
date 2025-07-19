@@ -144,7 +144,7 @@ Spindlova refleksija gleda u njega u mahuni odmah desno od tvog. Njegova faca je
 
 Čuješ kašalj i pomeranje udova van vidokruga, uhvatiš krajičkom oka reflektovan pokret gde se ostali polako bude negde na rubu vidnog polja.
 
-"Šta--" Glas ti je jedva jači od šapata. "...desil...?"
+"Šta--" Hrapav glas ti je jedva jači od šapata. "...desil...?"
 
 Spindl namešta vilicu. Kost glasno puca.
 
